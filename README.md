@@ -3,7 +3,7 @@
 </p>
 <p align="center">
 <b>JAMIE</b> or <i>mob</i> <img src="https://files.catbox.moe/wqqd6z.gif">
-<br> 16yo <img src="https://files.catbox.moe/8yr68w.gif" height="15px"> <i><u>01.23</u></i> he him <img src="https://files.catbox.moe/wtnhze.png" height="15px"> or <i>it its</i>
+<br> <img src="https://files.catbox.moe/8yr68w.gif" height="15px"> <i><u>01.23</u></i> he him <img src="https://files.catbox.moe/wtnhze.png" height="15px"> or <i>it its</i>
 <br> <b>ISFP-T</b> <img src="https://files.catbox.moe/qnvn3d.png" height="15px" width="15px"><img src="https://files.catbox.moe/wf7b5i.png" height="15px" width="15px">
 <br> no <u>dni</u>, I don't really care.
 <br><br> <a href="https://mobpsycho.atabook.org/">Sign my atabook</a> <img src="https://files.catbox.moe/emwcww.gif"> <a href="https://listography.com/espershigeo">Listography/Interests</a>
